@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LESSAPWB
+- 👀 I’m interested in to learn new things.
+- 🌱 I’m currently learning programming (especifically python) and strategic marketing.
+- 💞️ I’m looking to collaborate on improving people life.
+- 📫 How to reach me? Just text me on Instagram (patrickwbarbosa) or email me (patrickwbarbosa@gmail.com)
